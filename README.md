@@ -1,2 +1,3 @@
-U forgot to add a readme TwT\n
+U forgot to add a readme TwT
+
 I cba rn
